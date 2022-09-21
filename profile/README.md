@@ -1,1 +1,1 @@
-Ankeny Highschool Robotics Club
+Ankeny High School Robotics Club
